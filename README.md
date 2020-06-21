@@ -1,4 +1,11 @@
 #ANKIT SHARMA THOUGHTS OF THE DAY 
+
+
+
+https://www.keepinspiring.me/famous-quotes/
+
+
+
 “You know you’re in love when you can’t fall asleep because reality is finally better than your dreams.”
                                    – Dr. Suess
 “I’m selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can’t handle me at my worst, then you sure as hell don’t deserve me at my best.”

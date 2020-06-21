@@ -1,48 +1,19 @@
-# virus
-Only Two Types Of Communications Are Fastest In The World… 
-. 
-. 
-. 
-E-Mail To Email 
-& 
-Female To Female….
-
- Like [62]
- Dislike [16]
-One Year Ago | 10 shares | By Animesh # 94
-
-
-
-Teacher: Behind every successful man there is a women 
-what do we learn from this? 
-Student: we should stop wasting time in studies and find a woman.
-
- Like [146]
- Dislike [23]
-4 Years Ago | 2 shares | By Deepak # 44
-
-
-
-
-
-KID :- Why some of ur hair are 
-white dad ? 
-DAD : - Every time a son make his dad 
-unhappy , 
-one of his father's hair turns white ..... 
-KID :- Now understand why 
-grandpa's hairs are all white.
-
- Like [109]
- Dislike [14]
-4 Years Ago | 4 shares | By Sujit # 80
-
-
-
-
-
-A student is talking to his teacher. 
-
-Student: 'Would you punish me for something I didn`t do?' 
-Teacher: 'Of course not.' 
-Student: 'Good, because I haven't done my homework.'
+#ANKIT SHARMA THOUGHTS OF THE DAY 
+“You know you’re in love when you can’t fall asleep because reality is finally better than your dreams.”
+                                   – Dr. Suess
+“I’m selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can’t handle me at my worst, then you sure as hell don’t deserve me at my best.”
+                                    – Marilyn Monroe
+“When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.”
+                                 – Helen Keller
+“Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do.”
+                                 – Mark Twain
+“When I dare to be powerful – to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.”
+                                 – Audre Lorde
+“Great minds discuss ideas; average minds discuss events; small minds discuss people.”
+                                – Eleanor Roosevelt
+“A successful man is one who can lay a firm foundation with the bricks others have thrown at him.”
+                                – David Brinkley
+“Those who dare to fail miserably can achieve greatly.”
+                                – John F. Kennedy
+“I can’t give you a sure-fire formula for success, but I can give you a formula for failure: try to please everybody all the time.”
+                                -Herbert Bayard Swope

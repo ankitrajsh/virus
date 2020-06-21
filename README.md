@@ -2,7 +2,6 @@
 
 
 
-https://www.keepinspiring.me/famous-quotes/
 
 
 
